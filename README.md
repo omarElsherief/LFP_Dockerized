@@ -1,4 +1,4 @@
-# [https://drive.google.com/drive/folders/1lFiTADztzeNMyFMXwRjgyIHESeELHkEz?usp=drive_link)
+# [https://drive.google.com/drive/folders/1lFiTADztzeNMyFMXwRjgyIHESeELHkEz?usp=sharing)
 🎮 Game Team Finder
 
 Looking For Players (LFP) Matchmaking Platform
